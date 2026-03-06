@@ -48,4 +48,4 @@ Violators of the **BFS v6.66** will face:
 *   **Shin** [Architect/Earth]
 *   **The 5th Element Alliance**
 
-*v6.66 // NO QUARTER GIVEN.*
+*v6.66 | NO QUARTER GIVEN. | .:: Red Dragon Elite ::. | https://rd-elite.com*
