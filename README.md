@@ -2,7 +2,7 @@
 
 > **"We build the future on the graves of paid resources."**
 
-<center><img width="666" height="666" alt="dl_1771619803355" src="https://github.com/user-attachments/assets/3364a370-346e-484f-997c-fe0ae3b81d09" /></center>
+<img width="333" height="333" alt="AIRetouch_20260307_043318516" src="https://github.com/user-attachments/assets/3eabaffb-4ed9-43eb-a8d9-ff7b9126ff10" />
 
 ## ⚠️ WARNING
 This is **NOT** a standard open-source license.
